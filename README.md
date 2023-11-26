@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @Jacknice1
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+Jacknice1/Jacknice1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+follow me for to learn how you can make a million eoru yuhan and all countries money 
+click to follow my account 👇👇
+GCLRN7K6LI6VMFC2XECV6RE6LUEYANRFQ74STBN27MJW6BXPVCTXXYOJ
